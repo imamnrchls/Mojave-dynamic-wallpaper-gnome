@@ -1,0 +1,1 @@
+# Mojave-dynamic-wallpaper-gnome
